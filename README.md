@@ -4,7 +4,7 @@
 
 ## org
 
-rich boy is co-founder and CEO, along wif me, brielle, b dot, of an educational non-profit that provides smart contract standards for other organizations that are completely audited & insurable. also provides educational resources and employs a large staff of frens & others with bigger titles.
+rich boy is co-founder & ceo of an educational non-profit that provides smart contract standards for other organizations that are completely audited & insurable. also provides educational resources and employs a large staff of frens & others with bigger titles.
 
 ## frens
 
