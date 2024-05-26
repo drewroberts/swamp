@@ -14,7 +14,7 @@ SWAMP is hiring! the website is a bot interaction of family code (like a referra
 
 these are held all through the state of fl. announced morning of (at 4:20) then people livestream reaction & trips to the event. the top 5 livestreams all get paid in treasure chests (the vested nft for gold). all new frens (just in fl) upon kyc'ng also get a rucksack in the mail (eventually delivered in the night) with the following contents: GR1, 30pd plate, 5 t-shirts, trucker hat, handbook.
 
-these nfts along wif the welcome nft and lineage nfts will be a video slot where the video will be released one day. rich boy and i will do the welcome video and also invite some people to join.
+these nfts along wif the welcome nft and lineage nfts (called birthright) will be a video slot where the video will be released one day. rich boy and i will do the welcome video and also invite some people to join.
 
 ## lifestyle brand & blockchain artists agency
 
