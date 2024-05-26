@@ -32,4 +32,20 @@ website will have self noncustody wallet thing that was badass.
 
 ## decentralized social media app
 
+
+## 60 percent club
+
+1) schultz
+2) clutch
+3) coyote
+4) hogan
+5) brewer
+6) ligonier
+7) richboy
+8) tmoney
+9) sweett
+10) shantell
+11) darnell
+12) briezy
+
 2 min recap of what u learned in web3 today.. that is the daily series that we will pay people to do. they can also record them at different times. it also publicizes traits for location data, but only puts the visitibility of nft to certain descendants & their offspring. video is horizontal, the way i do them to encourage walk & talks & they will be issued as nfts to that person & descendants. The nft also has trait for the 5 recipients if they watched. that will increase the value of the nfts & it also changes the traits through all the descendants. it will also be timestamped due to the function on the smart contract.
