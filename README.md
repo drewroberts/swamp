@@ -1,6 +1,6 @@
 # swamp
 
-"my bull run all in play" -@drewroberts
+swamp is a web3 collective for gentlemen stumbling down the rabbit hole & adding value to each other. we create projects together and support each other. personal invites only.
 
 ## org
 
