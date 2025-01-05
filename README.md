@@ -2,6 +2,8 @@
 
 swamp is a web3 collective for gentlemen stumbling down the rabbit hole & adding value to each other. we create projects together and support each other. personal invites only.
 
+(need to expand)
+
 ## org
 
 rich boy is ceo focused on the decentralized exchange (dex) & tokenization movement of individuals & businesses. they all have 60% supply in exotic pairing wif swamp cash. coyote and a few others are leading the educational non-profit that provides smart contract standards for other organizations that are completely audited & insurable. also provides educational resources and employs a large staff of frens & others with bigger titles. jd & his crew lead the music label getting collabs wif musicians to create songs pushing the story telling nature of the web3 swamp lore.
